@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **suraj7088439517@gmail.com**
 
-- 📄 Know about my experiences [https://suraj-gupta.tiiny.site](https://suraj-gupta.tiiny.site)
+- 📄 Know about my experiences [https://resume-suraj.tiiny.site](https://resume-suraj.tiiny.site)
 
 - ⚡ Fun fact **I am very funny**
 
